@@ -1,1 +1,1 @@
-# estudiopuntorojo.com
+# estudiopuntorojo
